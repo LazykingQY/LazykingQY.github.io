@@ -1,0 +1,1 @@
+# LazykingQY.github.io
